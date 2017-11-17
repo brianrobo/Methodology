@@ -109,6 +109,21 @@
 + success is dependent on your persistence and amount of use you learn in this course.
 ```
 
+### Results
+- If you quickly read over and do little or nothing with this material, 
+  then your gain will be minimal.
+- If you put in a 10 percent effort, it will result in about a 10 percent increase.
+- If you "dabble" at it, 50 percent gain.
+- If you follow the instruction exactly, filling out your daily log and using
+  reading techniques as given , then you, 100 percent gain.
+
+
+### Practical Increase
+- Better Comprehension
+- Faster Speed
+- An improved ability to read, understand and remember technical or study material.
+- An ability to quickly read or skim over a great deal of material and to pick out 
+  what is important and deserves a more careful reading.
 
 
 
